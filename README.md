@@ -1,2 +1,2 @@
 # TugasAkhir
-Mau buat asjhdkjahd :))
+Mau buat sesuatu yang mudah dipahami orang lain
